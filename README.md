@@ -1,1 +1,0 @@
-# Hyemin_GH_Quest
